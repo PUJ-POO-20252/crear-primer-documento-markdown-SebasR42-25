@@ -25,8 +25,9 @@
 
 ---
 
-## 🏡 Image of My Dream Home  
-![Fjord Lofoten Islands, Norway](https://www.hdwallpapers.in/download/fjord_lofoten_islands_mountain_norway_with_reflection_on_river_4k_8k_hd_travel-1920x1080.jpg)
+## 🏡 Image of My Dream Home   
+![Modern Snowy Hillside Mansion](https://images.unsplash.com/photo-1542314831-068cd1dbfeeb)
+
 
 ---
 
