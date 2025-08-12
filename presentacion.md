@@ -1,4 +1,4 @@
-# 🌟 **My Presentation Hoy**
+# 🌟 **My Presentation Today**
 #### Here you can find some basic information about me
 
 ## 👤 My Name is **Juan Sebastian Rojas Huerter**  
